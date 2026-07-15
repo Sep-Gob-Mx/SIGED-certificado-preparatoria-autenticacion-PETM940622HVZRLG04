@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-PETM940622HVZRLG04
+PETM940622HVZRLG04
